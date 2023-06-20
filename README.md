@@ -1,1 +1,1 @@
-# SweetCandy
+# Sweet Candy
